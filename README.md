@@ -10,3 +10,4 @@
 ###
 https://github.com/Go0AT/NovelSearch/blob/master/JD_%24TG%7DR%24Q%7DF3V(NOR%25%60%60U2.png
 https://github.com/Go0AT/NovelSearch/blob/master/3_HID%5DAE%5B%5DQ57%5DNTW(~9)%249.png
+https://github.com/Go0AT/NovelSearch/blob/master/%25L2O_1%5BCB0D)I84SE910NF9.png
